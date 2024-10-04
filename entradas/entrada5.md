@@ -1,3 +1,3 @@
 #Entrada 5
-**What a wheek, huh?**
+**What a week, huh?**
 *Captain, it's Wednesday...*
